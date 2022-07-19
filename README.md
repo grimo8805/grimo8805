@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @grimo
-- 👀 I’m interested in football and pyhton.
-- 🌱 I’m currently an 3rd year nerd.
 - wanna reach me?? DM me
 
 <!---
